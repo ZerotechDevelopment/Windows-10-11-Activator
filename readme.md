@@ -23,7 +23,7 @@ To get started with Zerotech Windows 10 Activator, follow these simple steps:
 
 ## System Requirements
 
-- Supported Operating System: Windows 10.
+- Supported Operating System: Windows 10 or 11.
 - Administrative privileges required to run the activator.
 
 ## Disclaimer
