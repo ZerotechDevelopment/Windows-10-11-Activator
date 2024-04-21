@@ -36,5 +36,5 @@ For any inquiries, feedback, or support requests, please contact us at zerotechd
 
 ## License
 
-Zerotech Windows 10 Activator is distributed under the MIT License. See `LICENSE` for more information.
+Zerotech Windows 10 & 11 Activator is distributed under the MIT License. See `LICENSE` for more information.
 
