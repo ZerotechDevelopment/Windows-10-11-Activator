@@ -1,6 +1,6 @@
 
 
-# Zerotech Windows 10 Activator
+# Zerotech Windows 10 & 11 Activator
 
 Welcome to Zerotech Windows 10 Activator! This lightweight tool allows you to activate Windows 10 operating system using Key Management Service (KMS) method for a period of 180 days without the need for a restart.
 
